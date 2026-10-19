@@ -1,0 +1,2 @@
+# premium-lamellar-001-lamellar-plate-drilling-and-la
+Tired of digging through scattered notes and blurry photos just to remember which drill bit fits your 16-gauge lamellar plates? The Lamellar Plate Drilling and Lacing Hub turns your plate-prep chaos into a single, searchable database.  This Notion template eliminates the guesswork of plate drilling and lacing by centralizing every critical dimensio
